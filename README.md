@@ -1,1 +1,0 @@
-# solare-energia-solar
